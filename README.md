@@ -1,7 +1,7 @@
  Hello there, I am @Vijay-Chawan.
  
  Interested in Black Hole astrophysics and Exoplanet research.
- Currently, a postgraduate student at the dept. of Physics and Astronomy at National Institute of Technology, Rourkela - India.
+ Currently, a postgraduate student at the department of Physics and Astronomy at National Institute of Technology, Rourkela-769008, India.
  Can contact me @vijaysingh7197@gmail.com
  
 My Masters thesis work is on Regular Black Hole Astrophysics. I am working to put constrains on spin parameter and magnetic monopole charge parameter of Rotating Bardeen Black Hole.
