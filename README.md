@@ -1,4 +1,4 @@
- Hello there, I am @Vijay-Chawan.
+ Hello! there, I am @Vijay-Chawan.
  
  Interested in Black Hole astrophysics and Exoplanet research.
  Currently, a postgraduate student at the department of Physics and Astronomy at National Institute of Technology, Rourkela-769008, India.
